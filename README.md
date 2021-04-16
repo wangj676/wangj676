@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @wangj676
+- 👀 I’m interested in Corporate Finance and Econometrics
+- 🌱 I’m currently learning NLP
+- 💞️ I’m looking to collaborate on MD&A
+- 📫 How to reach me: wangj676@mail2.sysu.edu.cn
